@@ -1,4 +1,4 @@
-## Der Pinguin meines Lebens (2025)
+## Der Pinguin meines Lebens (2025) Ganzer
 
 ### .github
 
