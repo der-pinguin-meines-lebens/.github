@@ -1,3 +1,3 @@
 ## .github
 
-Der Pinguin
+Der Pinguin meines
