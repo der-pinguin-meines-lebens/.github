@@ -1,4 +1,4 @@
-## KINO Der Pinguin meines Lebens (2025) Ganzer Fil𝐦 Deutsch
+## KINO~HD Der Pinguin meines Lebens (2025) Ganzer Fil𝐦 Deutsch
 
 ### .github
 
